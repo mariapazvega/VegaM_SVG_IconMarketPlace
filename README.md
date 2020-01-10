@@ -1,0 +1,1 @@
+# VegaM_SVG_IconMarketPlace
